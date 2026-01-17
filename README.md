@@ -18,6 +18,8 @@
        • My favorite colors are Peach🪷,Mint/Turquoise/Azur🩵, Sage green 🌱and Coffee brown☕.
        • Im from  Western Romania. 🇷🇴
 Hope you have a great journey exploring my profile! Bye friends =D
+
+not rlly online on github, check my tumblr!
         
 
         
